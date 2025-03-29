@@ -1,6 +1,6 @@
 # Welcome to the Digital Fight Club
 
-**"We Do Not Talk About Bubble Club**
+**We Do Not Talk About Bubble Club**
 
 ## What Is This All About?
 
